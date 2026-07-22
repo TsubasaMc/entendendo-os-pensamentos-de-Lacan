@@ -32,3 +32,7 @@ arquivos principais em pdf:
 [S3 PSYCHOSES.pdf](https://github.com/user-attachments/files/30272653/S3.PSYCHOSES.pdf)
 
 [S1 Ecrits techniques.pdf](https://github.com/user-attachments/files/30272630/S1.Ecrits.techniques.pdf)
+
+
+
+LINK DO REPOSITORIO: https://notebooklm.google.com/notebook/45e52c75-b41a-4fdd-b58e-ca34e920d2e6
